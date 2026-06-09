@@ -1,4 +1,4 @@
-# 
+# Avanzado Kaspersky Total Security plugins para Mac OS | Nuevo Kaspersky Total Security plugins para PC Windows. Con seguimiento de eventos y detección de malware — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
